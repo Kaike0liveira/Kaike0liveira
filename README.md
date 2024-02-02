@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Kaike0liveira
+- 🇧🇷  I'm Brazilian
+- 👀 I’m interested in Java
+- 🌱 I’m currently learning Java, HTML and CSS (Beginner)
+- 💞️ I’m looking to collaborate on projects
+- 📫 How to reach me Kaike.Oliveira043@gmail.com
+- 😄 Pronouns: Ele/Dele
